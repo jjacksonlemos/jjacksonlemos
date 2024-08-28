@@ -18,6 +18,6 @@ Olá! Eu sou joaquim jackson.  sou apaixonado por tecnologia e sempre estou proc
 
 ## Contato
 
-* [LinkedIn](https://www.linkedin.com/in/jjacksonlemos/)
-* [Instagram](https://www.instagram.com/jjacksonlemos/)
+* [LinkedIn](https://www.linkedin.com/in/joaquim-jackson-136309268/)
+
 --->
